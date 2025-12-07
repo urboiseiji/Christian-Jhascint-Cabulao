@@ -1,2 +1,3 @@
 # Christian-Jhascint-Cabulao
-My Website
+Pain and Suffering are always inevitable — Fyodor Dostoevsky
+
